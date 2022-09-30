@@ -1,0 +1,2 @@
+# Toshkanboyevashahzoda
+Axborot
